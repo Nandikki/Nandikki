@@ -1,1 +1,1 @@
-- 👋 hi there
+24 years old. Python Developer. Virtual Reality developer. Master’s degree student in Data Science. Venture Capital-backed Startup UX Edtech founder. Experience building online communities. United Nations Climate Conference Delegate twice. Web3 enthusiast.
